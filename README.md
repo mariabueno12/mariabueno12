@@ -11,3 +11,7 @@ _meu nome é maria clara_ 🌟
 ### você pode entrar em contato comigo 📱
 
 @mclara_buenoaguiar
+
+![](https://tenor.com/pt-BR/view/friends-gif-24442895)
+
+
